@@ -1,4 +1,4 @@
-### Olá! Eu sou o Danilo Amorim!
+### Olá! Eu sou o Danilo Amorim! 👾
 
 <p> Estou sempre buscando aprender novas tecnologias para aprimorar minhas habilidades e ajudar a levar projetos para o próximo nível</p>
 
